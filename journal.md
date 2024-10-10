@@ -40,3 +40,15 @@ Even though chairty did the code but it was easy to follow because it was very s
   # September 30, 2024
 
   The App i use the most is instagram and technolgy is involved because instagram is a website and a network not only can you log in on your phone but you can log in on computer
+
+# october 7  2024
+
+Laywer
+to study and know your information
+being able to look up certain things
+a education that makes you stand out like hardvard
+debate and law internships
+i dont know 
+
+
+# october 10,  2024
