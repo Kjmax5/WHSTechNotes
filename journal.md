@@ -51,8 +51,14 @@ debate and law internships
 i dont know 
 
 
-# october 10,  2024
+# October 15, 2024
 
+We can improve problme solving skills by studying and learning new things. it can help you
+problem solving skills. It makes you more creative while working on it
 
+# October 21, 2024
+
+AI helps improve effciency and innovation in industries by helping the worker making things easier
+and some risks of that that are getting hacked
 
 
