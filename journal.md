@@ -60,5 +60,25 @@ problem solving skills. It makes you more creative while working on it
 
 AI helps improve effciency and innovation in industries by helping the worker making things easier
 and some risks of that that are getting hacked
+# October 28,  2024
+i think computer scince is involved with the election because they put in the votes and it keeps rank
+of who has more votes and what people are doing.
+# November 4,  2024
+Its important to not share your personal stuff because you could have stalkers and people could kidnap you and 
+theres also a ditgal footprint so if something happens to you that you want to forget about and you dont want your college people to 
+dont share it.
+# Novemner 12,  2024
+An event that has been happening in china they have been spying on us because of the tik toks
+# November 18,  2024
+Technolgy has changed a lot in the way that we make and buy crops from people and order it online and wait
+for it to arrive at our home 
+# December 2,  2024
+I learned that Ai is imrpoving over the years go by and its starting to grow a lot. This doesnt concern me because
+i love Ai and all the movies we watch we know its not gonna be something thats gonna happen
+# December 9,  2024
+Brain rot just means you start to normally say stuff that is online funny to you and i personally think its funny but
+it it gets to a point because some people of the daily bases it can be harmful to peoples intellegence
+and thats why its called brain rot
+
 
 
