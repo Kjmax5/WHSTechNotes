@@ -79,6 +79,9 @@ i love Ai and all the movies we watch we know its not gonna be something thats g
 Brain rot just means you start to normally say stuff that is online funny to you and i personally think its funny but
 it it gets to a point because some people of the daily bases it can be harmful to peoples intellegence
 and thats why its called brain rot
-
+# January 8,  2025
+ what i enjoyed most about the class was the that we had a lot of free time and play with the robots
+ honeslty i just want to maintain my 100 in this class
+ im not interested in any certifactions 
 
 
