@@ -83,5 +83,6 @@ and thats why its called brain rot
  what i enjoyed most about the class was the that we had a lot of free time and play with the robots
  honeslty i just want to maintain my 100 in this class
  im not interested in any certifactions 
-
+# January 13,  2025
+computers have made a huge impacted on this society till this day, the same way how the internent is expanding in the present day.
 
