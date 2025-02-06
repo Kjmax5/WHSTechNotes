@@ -99,3 +99,5 @@ Bart	|	 Toyota Corolla   |Left Stains On Carpet
 -------------------------------------
 Harrison| Subaru Forester|Fixed Wrong Problem
 -------------------------------------
+# February 3,  2025
+They could help or change it by making reactions to erros more effective and just help it in more ways when an error seems to occur.
