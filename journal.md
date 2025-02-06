@@ -85,4 +85,13 @@ and thats why its called brain rot
  im not interested in any certifactions 
 # January 13,  2025
 computers have made a huge impacted on this society till this day, the same way how the internent is expanding in the present day.
-
+# Januray 22,  2025
+I think it makes companies worry because if they dont have anough users the company will go down and they get less money.
+I think they could just be more secure nd proven that they are different.
+# Januray 27,  2025
+Name	|       Car	      |     Mistake
+----------------------------------------
+Jimmy|		Honda Civic      | Drilled Hole In Gas Tank
+Kayla|  GMC Sierra		     |Fixed Wrong Problem
+Bart	|	 Toyota Corolla   |Left Stains On Carpet
+Harrison| Subaru Forester|Fixed Wrong Problem
