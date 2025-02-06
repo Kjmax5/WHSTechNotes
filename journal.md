@@ -90,8 +90,12 @@ I think it makes companies worry because if they dont have anough users the comp
 I think they could just be more secure nd proven that they are different.
 # Januray 27,  2025
 Name	|       Car	      |     Mistake
-----------------------------------------
+-------------------------------------
 Jimmy|		Honda Civic      | Drilled Hole In Gas Tank
+-------------------------------------
 Kayla|  GMC Sierra		     |Fixed Wrong Problem
+-------------------------------------
 Bart	|	 Toyota Corolla   |Left Stains On Carpet
+-------------------------------------
 Harrison| Subaru Forester|Fixed Wrong Problem
+-------------------------------------
