@@ -101,4 +101,21 @@ Harrison| Subaru Forester|Fixed Wrong Problem
 -------------------------------------
 # February 3,  2025
 They could help or change it by making reactions to erros more effective and just help it in more ways when an error seems to occur.
-# 
+# February 11, 2025
+what i would include for the football is ai to predict what plays there are and whats best to play based off of the people that are 
+playingand who is on the team.
+# February 18, 2025
+Last week i learned that even though my baseball team didnt do well in the game we still connected.
+# February 24, 2025
+A way for people to stay updated on new youth slang is simply just to stay updated or keep because come with up with the most random
+words or brainrot words.
+# March 3, 2025
+# March 21, 2025
+For technology i used over the spring break was my moblit tech and i litteraly use my phone and my ipad for everything
+# March 24, 2025
+I think technology in bascketball is really cool. Ive seen games when it was covid sense we couldnt see each other and they would have the game playing with the people was very cool.
+# April 2, 2025
+The most stressful part of school lately has been trying to stay up in class and doing my work
+# April 7, 2025
+Ai is a quick and easy way to get notes and a direct lesson on what to do on certain types of technology and you can learn how to use it in your daily life and get jobs and scolarships.
+
